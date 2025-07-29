@@ -1,4 +1,4 @@
 # zeroG
 og labs
 og labs airdrop 
-step 1
+step 1 tx atleast 100 plus
